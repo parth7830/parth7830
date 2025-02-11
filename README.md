@@ -2,8 +2,7 @@
 - 👀 I’m interested in ... Coding 
 - 🌱 I’m currently learning ...Btech,Amu
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...parthkartik125@gmail.com
--                         (8791661939)
+- 📫 How to reach me ...parthkartik125@gmail.com (8791661939)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
